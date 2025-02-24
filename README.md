@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @QueenFana
-- 👀 I’m interested in ...
+- 👀 I’m interested in sewing and coding
 - 🌱 I’m currently learning web and mobile developpement
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me saboutoufananatou@gmail.com
+- 📫 How to reach me saboutoufananatoupro@gmail.com
 - 😄 Pronouns: she
 - ⚡ Fun fact: i'm not fun
 
